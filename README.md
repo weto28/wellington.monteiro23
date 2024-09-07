@@ -1,7 +1,7 @@
 # Olá! Eu sou o Wellington.monteiro23 🤗
 💻 Atualmente trabalho como Qa.
 🎫 Estudando automação.
-📧 Contate-me no email: wellington_log@hotmail.com.br
+📧 Contate-me no e-mail: wellington_log@hotmail.com.br
 
 ##
 
